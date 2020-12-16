@@ -1,0 +1,1 @@
+ready made noodles, maggi packets, hot water.
